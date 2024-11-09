@@ -1,1 +1,0 @@
-# growthmate-internship
